@@ -1,5 +1,5 @@
 Team Name:  
-Wizarding Owls  
+Wizarding Owl's Magic Wand  
 
 Team Members:  
 Nayana Chandrashekara Sharma - nc54  
